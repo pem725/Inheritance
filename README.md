@@ -1,6 +1,6 @@
 # Inheritance
 
-A little bit of detail for how I want my estate to be divided when I am no longer...
+A little bit of detail for how I want *my share* of our collective estate to be divided when I am no longer...
 
 ## Some answers before you ask
 1.  Yes, I shall pass (as all good and bad in life).
@@ -9,4 +9,7 @@ A little bit of detail for how I want my estate to be divided when I am no longe
 
 ## Some principles
 1.  Help but don't hinder
-2.  
+2.  Think long-term not short-term
+3.  Show love and care
+4.  No favorites
+5.  Equitable NOT Equal
